@@ -8,6 +8,7 @@ List of Ideas
 * Modern themed
 * Mini Maps
  * Have some iconic nebula maps under the floor in a mini version. (this might work if done correctly)
+* Dark themed - Lava, Coal Blocks, and Dragons or Warrior statues C: Voxel too op plz nerf - Adrian
 
 Feel free to add ideas here, but if you want to remove an idea please discuss it in the skype chat or create an issue.
 
