@@ -11,7 +11,6 @@ List of Ideas
 * Dark themed - Lava, Coal Blocks, and Dragons or Warrior statues C: Voxel too op plz nerf - Adrian (I already made a Dragon :O)
 * Medieval Themed
 * A little bit of everything.
-* Hue <3
 
 Feel free to add ideas here, but if you want to remove an idea please discuss it in the skype chat or create an issue.
 
