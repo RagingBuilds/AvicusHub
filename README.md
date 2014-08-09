@@ -3,11 +3,8 @@ List of Ideas
 * Skywars themed
 * Park themed
  * Grass, benches, trees, flowers, parky things.
-* Fun hub.
- * Leave looks behind and focus on making it fun. (this is a bad idea but I'm putting it here anyways)
 * Modern themed
 * Mini Maps
- * Have some iconic nebula maps under the floor in a mini version. (this might work if done correctly)
 * Dark themed - Lava, Coal Blocks, and Dragons or Warrior statues C: Voxel too op plz nerf - Adrian 
 * Medieval Themed
 * A little bit of everything.
