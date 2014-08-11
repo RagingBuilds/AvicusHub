@@ -1,8 +1,6 @@
 List of Ideas
 =========
 * Skywars themed
-* Park themed
- * Grass, benches, trees, flowers, parky things.
 * Modern themed
 * Mini Maps
 * Dark themed - Lava, Coal Blocks, and Dragons or Warrior statues C: Voxel too op plz nerf - Adrian 
