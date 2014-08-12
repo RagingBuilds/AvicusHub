@@ -9,7 +9,7 @@ List of Ideas
 * We already started on something that iz vewwy secret. :3 C:
 
 
-Feel free to add ideas here, but if you want to remove an idea please discuss it in the skype chat or create an issue.
+Feel free to add ideas here, but if you want to remove an idea please discuss it in the skype chat or create an issue or just change it.
 
 Note
 =========
