@@ -3,7 +3,7 @@ List of Ideas
 * Skywars themed
 * Modern themed
 * Mini Maps
-* Dark themed - Lava, Coal Blocks, and Dragons or Warrior statues C: Voxel too op plz nerf - Adrian 
+* Dark themed - Lava, Coal Blocks, and Dragons or Warrior statues C: Voxel too op plz nerf - 'Adrian' 
 * Medieval Themed
 * A little bit of everything.
 * We already started on something that iz vewwy secret. :3 C:
